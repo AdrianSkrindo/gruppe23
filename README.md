@@ -3,3 +3,4 @@
 Marius Nordbø
 Adrian Skrindo
 Ruben Pettersen
+Solveig Maria 
