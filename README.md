@@ -1,3 +1,4 @@
 # gruppe 23
 
-Adrian
+Adrian Skrindo
+
